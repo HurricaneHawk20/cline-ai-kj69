@@ -1,4 +1,4 @@
-# 
+# Atualizado Cline ferramentas. Com raciocínio automatizado e busca semântica — otimizado para máximo desempenho e eficiência.
 
 
 
